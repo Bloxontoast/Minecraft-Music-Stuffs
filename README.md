@@ -1,1 +1,1 @@
-how the fuck do i delete ts
+naw how do i remover this
